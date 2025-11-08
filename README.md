@@ -1,4 +1,4 @@
-# Hi there, I'm [Your Name] 👋
+# Hi there, I'm Basera Marlvin 👋
 
 I am a final-year Business Management Systems Design & Applications student building a career as a **Marketing Technologist**.
 
